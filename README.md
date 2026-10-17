@@ -10,3 +10,6 @@ so far semua rangkaian INTRIVIA yang telah saya lalui sangat bermanfaat, banyak 
 
 ## Kesan Pesan Cluster 14 Sejauh Ini 
 cluster 14 orangnya asik asik
+
+## Harapan Kuliah
+semoga saya dapat menyelesaikan masa studi kurang dari 4 tahun dan dapat ilmu yang saya dapatkan bisa bermanfaat.
